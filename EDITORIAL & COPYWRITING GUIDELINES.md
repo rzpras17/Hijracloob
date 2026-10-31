@@ -1369,9 +1369,5 @@ Yang harus selalu terasa adalah kualitas pemikirannya.
 
 Setiap konten harus membuat audiens mendapatkan sesuatu yang sebelumnya mungkin belum mereka sadari, belum mereka pahami, atau belum pernah mereka pertanyakan.
 
-**Think Critically. Understand Deeply. Act Morally.**
-
-*Critical Minds, Islamic Values, Human Dignity.*
-
 **HIJRACLOOB — END OF EDITORIAL & COPYWRITING GUIDELINES**
 
